@@ -36,4 +36,4 @@ I am a dedicated Master’s student focused on **Actuarial Science and Risk Mode
 
 * **Location:** Kiel, Germany
 * **University:** CAU Kiel
-* **Connect:** [LinkedIn](https://www.linkedin.com/in/anshul-setpal-0722163b3)
+* **Connect:** [LinkedIn](https://www.linkedin.com/in/anshul-setpal)
